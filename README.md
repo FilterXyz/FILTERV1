@@ -1,7 +1,5 @@
 # CRACK FB
 Tetap Crack Walaupun Alot 😎😛
-# CRACK FB
-Tetap Crack Walaupun Alot
 
 # Enjoy 🤤 
 
